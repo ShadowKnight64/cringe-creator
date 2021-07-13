@@ -1,3 +1,3 @@
-# cringe-creator-v1.0
+# cringe-creator
 AAAAAAAAAAAAAAAAA
 WHYYYYYYY
